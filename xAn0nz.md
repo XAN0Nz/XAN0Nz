@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @XAN0Nz
+- 👀 I’m interested in software design.
+- 🌱 I’m currently learning basic coding.
+- 🎶 I’m looking to collaborate on a bussines
